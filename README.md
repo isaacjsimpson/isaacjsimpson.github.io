@@ -1,1 +1,0 @@
-# isaacjsimpson.github.io
